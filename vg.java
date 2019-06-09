@@ -1,2 +1,0 @@
-<vg jindabad>
-nahi rahega
